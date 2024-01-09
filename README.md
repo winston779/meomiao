@@ -1,6 +1,6 @@
 # 萌喵加速官网地址
 
-最新地址：[meomiao.xyz](https://vip.meomiao.xyz/#/register?code=qKx0GWiF)
+最新地址：[meomiao.xyz](https://vvip.meomiao.xyz/#/register?code=qKx0GWiF)
 
 ## 简介
 
